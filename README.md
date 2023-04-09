@@ -1,3 +1,3 @@
 ###                                                                   Python
 
-https://tenor.com/view/capybara-capibara-meh-gif-25343102
+img/https://tenor.com/view/capybara-capibara-meh-gif-25343102
